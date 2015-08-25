@@ -6,3 +6,6 @@ ha ha
 i am now sitting in the coffee shop name stoppagetime,
 with KPZ, doing homework.
 pepole talk loudly let me feel dizzy
+=====
+cat like a cat
+water a waterman
